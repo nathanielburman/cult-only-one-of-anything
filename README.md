@@ -8,5 +8,7 @@ This cult mentality starts with: you can only have one god, one country, one edu
 5. only one house
 6. only one car
 7. only one child
+8. only one friend
+9. only one pet
 
 everything after this is derived from this source.
